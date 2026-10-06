@@ -1,1 +1,0 @@
-# FOODLAB-CALC
